@@ -1,0 +1,15 @@
+{
+    "name": "the-psychology-of-mindful-communication-in-the-workplace-understanding-the-importance-of-mindful-communication-for-a-more-productive-and-harmonious-work-environment",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
