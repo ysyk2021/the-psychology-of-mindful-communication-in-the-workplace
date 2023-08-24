@@ -1,5 +1,3 @@
-Chapter 2: Introduction to Mindfulness
-======================================
 
 In this chapter, we will explore the concept of mindfulness, its origins, and the benefits of mindfulness practice.
 

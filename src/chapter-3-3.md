@@ -1,5 +1,3 @@
-The Benefits of Mindfulness Practice
-============================================================================
 
 In this chapter, we will explore the many benefits of mindfulness practice in the workplace. Mindfulness is a powerful tool for enhancing communication, increasing productivity, and improving well-being.
 

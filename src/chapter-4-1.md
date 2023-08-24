@@ -1,5 +1,3 @@
-The Intersection Between Mindfulness and Communication
-========================================================================================
 
 In this chapter, we will explore the intersection between mindfulness and communication, focusing on how mindfulness can enhance communication skills and improve workplace interactions.
 

@@ -1,5 +1,3 @@
-Strategies for Implementing Mindful Communication in the Workplace
-==============================================================================================================================
 
 In this chapter, we will explore practical strategies for implementing mindful communication in the workplace.
 

@@ -1,4 +1,3 @@
-# Introduction
 
 Mindful communication is essential for creating a positive and productive workplace environment. That's where "The Psychology Of Mindful Communication In The Workplace: Understanding The Importance Of Mindful Communication For A More Productive And Harmonious Work Environment" comes in.
 

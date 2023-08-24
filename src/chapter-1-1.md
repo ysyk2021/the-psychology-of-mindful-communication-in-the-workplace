@@ -1,5 +1,3 @@
-An Overview of the Importance of Communication in the Workplace
-=============================================================================
 
 In this book, we will explore the importance of communication in the workplace and how it can be enhanced through the practice of mindfulness. Effective communication is essential for building relationships, achieving goals, and creating a positive work environment.
 

@@ -1,5 +1,3 @@
-Common Challenges in Practicing Mindful Communication in the Workplace
-======================================================================================================================================================
 
 In this chapter, we will explore common challenges that individuals may face when practicing mindful communication in the workplace and offer solutions to overcome them.
 

@@ -1,5 +1,3 @@
-The Benefits of Practicing Mindfulness in Communication
-=====================================================================
 
 In this book, we will explore the benefits of practicing mindfulness in communication in the workplace. Mindfulness is a practice that involves being fully present in the moment, non-judgmentally and with acceptance. The application of mindfulness principles to interpersonal communication can enhance communication skills, improve workplace interactions, and promote overall well-being.
 

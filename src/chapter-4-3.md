@@ -1,5 +1,3 @@
-The Impact of Mindful Communication on Workplace Relationships and Productivity
-=================================================================================================================
 
 In this chapter, we will explore the impact of mindful communication on workplace relationships and productivity.
 

@@ -1,5 +1,3 @@
-Defining Communication and its Types
-=============================================================================================
 
 In this chapter, we will define communication and explore the different types of communication that can occur in the workplace.
 

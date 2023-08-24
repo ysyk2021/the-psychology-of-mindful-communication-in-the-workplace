@@ -1,5 +1,3 @@
-Mindful Listening and Speaking Techniques
-===========================================================================
 
 In this chapter, we will explore mindful listening and speaking techniques that can enhance communication effectiveness in the workplace.
 

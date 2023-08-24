@@ -1,5 +1,3 @@
-Understanding the concept of present-moment awareness
-=============================================================================================
 
 In this chapter, we will explore the concept of mindfulness and its importance in workplace communication. Mindfulness involves being fully present in the moment and paying attention to one's thoughts, feelings, and surroundings without judgment.
 

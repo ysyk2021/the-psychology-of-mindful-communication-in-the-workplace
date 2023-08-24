@@ -1,5 +1,3 @@
-Solutions to Overcome These Challenges
-======================================================================================================================
 
 In this chapter, we will explore common challenges to practicing mindful communication in the workplace and solutions for overcoming them.
 

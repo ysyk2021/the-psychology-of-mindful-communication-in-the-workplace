@@ -1,5 +1,3 @@
-Chapter 3: Mindful Communication
-================================
 
 In this chapter, we will explore the intersection between mindfulness and communication, mindful listening and speaking techniques, and the impact of mindful communication on workplace relationships and productivity.
 

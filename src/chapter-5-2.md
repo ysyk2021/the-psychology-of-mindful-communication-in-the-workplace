@@ -1,5 +1,3 @@
-The Role of Leaders in Promoting Mindful Communication
-==================================================================================================================
 
 In this chapter, we will explore the role of leaders in promoting mindful communication in the workplace.
 

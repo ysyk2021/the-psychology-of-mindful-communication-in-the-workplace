@@ -1,5 +1,3 @@
-Overcoming Resistance to Change and Creating a Culture of Mindful Communication
-===========================================================================================================================================
 
 In this chapter, we will explore strategies for overcoming resistance to change and creating a culture of mindful communication in the workplace.
 

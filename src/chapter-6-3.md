@@ -1,5 +1,3 @@
-The Importance of Ongoing Practice and Evaluation
-=================================================================================================================================
 
 In this chapter, we will explore the importance of ongoing practice and evaluation in promoting mindful communication in the workplace.
 

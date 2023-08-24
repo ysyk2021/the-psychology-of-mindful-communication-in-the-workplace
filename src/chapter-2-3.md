@@ -1,5 +1,3 @@
-Common Communication Barriers and How to Overcome Them
-===============================================================================================================
 
 In this chapter, we will explore the common communication barriers that can occur in the workplace and provide strategies for overcoming them.
 

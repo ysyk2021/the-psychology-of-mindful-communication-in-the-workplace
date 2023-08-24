@@ -1,5 +1,3 @@
-Chapter 4: Applying Mindful Communication in the Workplace
-==========================================================
 
 In this chapter, we will explore strategies for implementing mindful communication in the workplace, the role of leaders in promoting mindful communication, and how to overcome resistance to change and create a culture of mindful communication.
 

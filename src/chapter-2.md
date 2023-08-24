@@ -1,5 +1,3 @@
-Chapter 1: Understanding Communication in the Workplace
-=======================================================
 
 In this chapter, we will explore the concept of communication in the workplace, its types, importance, and common barriers to effective communication.
 

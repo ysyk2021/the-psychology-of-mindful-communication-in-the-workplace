@@ -1,5 +1,3 @@
-Defining mindfulness and its origins
-============================================================================
 
 In this chapter, we will define mindfulness and explore its origins. Mindfulness is a concept that has roots in ancient Eastern philosophies and has gained popularity in recent years as a tool for enhancing well-being and communication in the workplace.
 
