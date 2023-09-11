@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Resistance to Change and Creating a Culture of Mindful Communication
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore strategies for overcoming resistance to change and creating a culture of mindful communication. By addressing resistance and fostering a culture that values mindful communication, organizations can navigate transitions effectively and promote a positive work environment.
 

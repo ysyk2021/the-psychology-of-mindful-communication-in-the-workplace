@@ -1,5 +1,4 @@
-Chapter 4: The Benefits of Mindfulness Practice
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the numerous benefits of mindfulness practice. By incorporating mindfulness into our daily lives, we can experience positive changes in our well-being, communication skills, and overall work environment.
 

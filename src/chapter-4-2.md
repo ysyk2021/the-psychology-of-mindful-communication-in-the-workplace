@@ -1,5 +1,4 @@
-Chapter 5: Mindful Listening and Speaking Techniques
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore mindful listening and speaking techniques that can significantly improve communication effectiveness. By cultivating these techniques, individuals can enhance their ability to listen attentively and speak mindfully, fostering better understanding and connection in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 4: Common Challenges in Practicing Mindful Communication in the Workplace
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore common challenges that individuals may encounter when trying to practice mindful communication in the workplace. By understanding these challenges, we can develop strategies to overcome them and foster more effective communication in our professional lives.
 

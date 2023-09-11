@@ -1,5 +1,4 @@
-Chapter 6: The Impact of Mindful Communication on Workplace Relationships and Productivity
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the profound impact that mindful communication can have on workplace relationships and overall productivity. By cultivating mindful communication practices, individuals and organizations can experience positive transformations in their interactions and work outcomes.
 

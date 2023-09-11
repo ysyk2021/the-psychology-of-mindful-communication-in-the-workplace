@@ -1,5 +1,4 @@
-Chapter 5: The Role of Leaders in Promoting Mindful Communication
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the essential role of leaders in promoting mindful communication within organizations. By understanding their role and adopting mindful communication practices, leaders can create a positive and productive work environment.
 

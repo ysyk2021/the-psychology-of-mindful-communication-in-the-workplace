@@ -1,5 +1,4 @@
-Chapter 8: The Importance of Ongoing Practice and Evaluation
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will delve into the significance of ongoing practice and evaluation in cultivating effective mindful communication skills. By continuously honing our abilities and reflecting on our progress, we can further enhance our communication practices and contribute to a more positive and harmonious workplace environment.
 

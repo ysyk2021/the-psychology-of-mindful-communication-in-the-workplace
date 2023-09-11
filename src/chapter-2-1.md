@@ -1,5 +1,4 @@
-Chapter 2: Defining Communication and Its Types
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the concept of communication and its various types. By understanding the different forms of communication, individuals can develop a comprehensive understanding of how messages are exchanged within the workplace.
 

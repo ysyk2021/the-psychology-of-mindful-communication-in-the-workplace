@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Effective Communication in the Workplace
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the significance of effective communication in the workplace. By recognizing the importance of communication, individuals can develop skills to foster better understanding, collaboration, and productivity.
 

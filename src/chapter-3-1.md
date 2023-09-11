@@ -1,5 +1,4 @@
-Chapter 2: Defining Mindfulness and Its Origins
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Psychology of Mindful Communication in the Workplace: Understanding the Importance of Mindful Communication for a More Productive and Harmonious Work Environment," we will explore the concept of mindfulness and its origins. By understanding the definition and historical roots of mindfulness, we can appreciate its significance in fostering effective communication within the workplace.
 
